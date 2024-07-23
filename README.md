@@ -1,1 +1,2 @@
-# aurangzeb-qureshi.github.io
+Aurangzeb-pixel/Aurangzeb- Welcome to Aurangzeb- Discussions!
+📣 Announcements
